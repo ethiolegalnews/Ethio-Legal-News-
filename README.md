@@ -1,2 +1,2 @@
-# Ethio-Legal-News-
-Ethio Legal News is Source of Daily Legal News 
+Echo of Justice
+Echo of Justice is digital legal and human right advocacy 
